@@ -1,0 +1,2 @@
+# tamtamtam
+tamagotchi belom jadi
